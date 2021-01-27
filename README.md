@@ -1,1 +1,1 @@
-# Simple-Bible-Verses-y--RU
+# Simple-Bible-Verses-r--RU
